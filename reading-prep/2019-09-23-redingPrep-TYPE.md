@@ -1,4 +1,4 @@
-# Reading Prep: Chapter 3: 
+# Reading Prep: Chapter 3: Type
 
 #### Andrés Gorbea
 
